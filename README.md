@@ -1,3 +1,1 @@
-Hare Krishna
-Hare Krishna Hare Hare
-Hare Ram Hare Hare
+Hare Krishna Hare Krishna, Krishna Hare Hare
